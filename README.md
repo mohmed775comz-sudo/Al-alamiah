@@ -1,3 +1,3 @@
 # Al-alamiah
 أفضل مستودع لمواقع بيع المنتجات الرقمية
-luxperfume-g8xoswdt.manus.space 
+https://arabia-tech-boutique.lovable.app/
